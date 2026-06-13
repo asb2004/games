@@ -76,4 +76,4 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-[your-email@example.com](mailto:your-email@example.com)
+ishapesolution@gmail.com
